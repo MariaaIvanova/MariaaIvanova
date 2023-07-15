@@ -14,8 +14,6 @@
 
 - 📫 How to reach me **mariya.kl.ivanova@gmail.com**
 
-drgvdrfgvdg
-
 
 
 ## 🌱 Languages and Tools:
